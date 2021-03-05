@@ -1,3 +1,4 @@
 Hallo ich bin Katha.
-Mein Ausbilder heißt Martin.
+Hallo, mein Ausbilder heißt Martin. 
 Mir wird eine Menge beigebracht. :D
+Bye. 2023 bin ich fertig.
