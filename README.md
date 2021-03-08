@@ -1,6 +1,6 @@
 Hallo ich bin Katha.
-Hallo, mein Ausbilder heißt Martin. :)
+Hallo, mein Ausbilder heißt Martin und ist mega cool. :)
 Mir wird eine Menge beigebracht. :D
 Bye. 2023 bin ich fertig.
 Okidoki sind 2,5 Jahre. :(
-    Guten Morgen, es ist Montag. Weltfrauentag.
+Guten Morgen, es ist Montag. Weltfrauentag.
